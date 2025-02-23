@@ -97,4 +97,4 @@ If you find this project helpful, please consider giving it a ⭐️ on GitHub!
 
 ## Contact
 
-Telegram:https://t.me/dogewhiz
+Telegram:https://t.me/goldensniper514
